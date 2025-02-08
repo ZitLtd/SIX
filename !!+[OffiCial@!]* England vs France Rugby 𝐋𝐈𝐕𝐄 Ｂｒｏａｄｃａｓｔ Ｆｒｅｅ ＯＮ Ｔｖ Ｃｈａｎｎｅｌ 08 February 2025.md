@@ -1,5 +1,12 @@
 # !!+[OffiCial@!]* England vs France Rugby 𝐋𝐈𝐕𝐄 Ｂｒｏａｄｃａｓｔ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 08 February 2025
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/rug.html)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/rug.html)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNiOWRB3jdxsmxMRD7jkwKxsaZ5Nw2w9r6Zl7pWcRY1oy3VaREp6oLXa2h4xZACO5Iaq12YPaUzOslPrTv3cSH90fA94u6k0FPqczaYVL02SZ-uErMPKyOt3VgLVu3lfXsPoj3_QMNJSLTP8W1c_ErsgFSkrV-QHKnkHkKLMOTWljjQyTwK_kePi0JC4s/w520-h293/Rugby%20Image.gif)](https://mr-juniior.blogspot.com/2025/02/rug.html)
+
 Fans in the UK can watch England v France in the Six Nations on ITV. Free coverage of every game is available in the UK on either BBC or ITV, ... England v France LIVE: Six Nations latest score and updates as Steve Borthwick's side face mighty challenge. With just two wins in their last ... TV channel: The game will be broadcast on ITV 1, following on from Italy's clash with Wales. Live stream: ITVX – which is free with a ...
 
 Watch England v France as two sides who had very different opening Six Nations 2025 weekends meet in London on Saturday 8 February. Below you’ll find all the information you need on how to tune into TV broadcasts and live streams wherever you are today.
